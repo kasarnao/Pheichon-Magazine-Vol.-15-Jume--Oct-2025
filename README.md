@@ -1,1 +1,1 @@
-# Pheichon-Magazine-Vol.-15-Jue--Oct-2025
+# Pheichon-Magazine-Vol.-15-June--Oct-2025
